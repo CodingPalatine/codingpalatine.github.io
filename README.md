@@ -1,1 +1,0 @@
-# codingpalatine.github.io
